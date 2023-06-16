@@ -17,6 +17,14 @@ Fuctionalities:
 
 Users can also search through Jobs that have already been created
 
-<img src="https://files.fm/thumb_show.php?i=tt8wg9hgw" width="600" alt="image">
+<img src="https://files.fm/thumb_show.php?i=hmcpkhrmx" width="600" alt="image">
 
-<img src="https://files.fm/thumb_show.php?i=qz6y6jh73" width="600" alt="image">
+<img src="https://files.fm/thumb_show.php?i=dm2s22cgh" width="600" alt="image">
+
+<img src="https://files.fm/thumb_show.php?i=5x8qeddwe" width="600" alt="image">
+
+<img src="https://files.fm/thumb_show.php?i=sutprhtau" width="600" alt="image">
+
+<img src="https://files.fm/thumb_show.php?i=bvzg9ssng" width="600" alt="image">
+
+<img src="https://files.fm/thumb_show.php?i=29hxy9xue" width="600" alt="image">
