@@ -9,7 +9,7 @@
 
 Job Search Engine
 
-Fuctionalities:
+Functionalities:
     #Create
     #Edit
     #Update
